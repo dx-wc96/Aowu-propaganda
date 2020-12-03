@@ -52,7 +52,7 @@ Together to produce wonderful content!
 
 ![image](https://github.com/dx-wc96/Aowu-propaganda/blob/main/2.png)
 
-# For more information, please pay attention
+# For more information, please pay attention WeChat official account
 
 ![image](https://github.com/dx-wc96/Aowu-propaganda/blob/main/qrcode.jpg)
 
