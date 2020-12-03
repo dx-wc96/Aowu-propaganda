@@ -1,4 +1,5 @@
 # Aowu-propaganda
+![image](https://github.com/dx-wc96/Aowu-propaganda/blob/main/1.png)
 At present, the company has developed/operated the pet vertical community product -- Aowu  Coming online, looking forward to meeting you!
                                                                                    --From Guangzhou Plug Interactive Technology Co. LTD.
 
@@ -48,6 +49,8 @@ Together to produce wonderful content!
 4/ Dozens of small and medium-sized merchants have settled in (Sleeve Tiger/Ruipeng and other chain giants are ready to settle in)
 
 5/ million fans' We Media drainage (own pet "we media" account, continuous content output)
+
+![image](https://github.com/dx-wc96/Aowu-propaganda/blob/main/2.png)
 
 # For more information, please pay attention
 
